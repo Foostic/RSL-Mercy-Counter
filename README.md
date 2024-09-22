@@ -1,4 +1,4 @@
-## Download : [Mercy Counter](https://2ly.link/1zrIS)
+## Download : [Click Green Code Button - Download ZIP]
 
 
 ---

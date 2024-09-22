@@ -1,4 +1,4 @@
-## Download : [Mercy Counter](https://drive.google.com/file/d/1jE4YfTNai7vxUUo5DMT7QTLzGWf-t_CQ/view?usp=drive_link)
+## Download : [Mercy Counter](https://2ly.link/1zrIS)
 
 
 ---

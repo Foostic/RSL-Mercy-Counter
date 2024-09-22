@@ -1,4 +1,5 @@
-Click the Green "Code" Button, Then click Download Zip.
+## Download : [Mercy Counter](https://drive.google.com/file/d/1jE4YfTNai7vxUUo5DMT7QTLzGWf-t_CQ/view?usp=drive_link)
+
 
 ---
 

